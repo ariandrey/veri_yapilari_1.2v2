@@ -1,0 +1,1 @@
+# veri_yapilari_1.2v2
